@@ -1,1 +1,0 @@
-# travel-point-privacy-policy
